@@ -1,4 +1,4 @@
-# SawaymaanSingh
+# Sawaymaan Singh
 
 ### Hi 👋
 
