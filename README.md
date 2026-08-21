@@ -9,3 +9,5 @@ I'm a 3rd-year Computer Science student with a growing interest in **Machine Lea
 - 💬 Feel free to reach out or check out my repositories below
 
 Thanks for stopping by!
+
+Linkedin: https://www.linkedin.com/in/sawaymaan-singh-5b669b332
